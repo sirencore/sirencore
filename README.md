@@ -1,4 +1,4 @@
-wip + profile wip too (may take hours or days)
+wip (trust, i will finish this readme in mid november or early december)
 
 ㅤ
 
