@@ -1,3 +1,4 @@
+
 wip (trust, i will finish this readme in mid november or early december)
 
 ㅤ
@@ -12,4 +13,4 @@ sign my [atabook](https://doublenurse.atabook.org/) instead
 
 <div align="center">
 
-https://github.com/user-attachments/assets/81097b01-24c0-4b00-880e-f9a9e24a9d4e
+https://github.com/user-attachments/assets/6b1c1783-a55b-48b5-9069-0a4b1dacb1a9
