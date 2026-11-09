@@ -7,7 +7,7 @@ sign my [atabook](https://doublenurse.atabook.org/) instead
 
 ㅤ
 
-[ship-town's doublenurse shipper](https://github.com/ship-town)ㅤ[music-town's compliment song](https://github.com/music-town)ㅤ[the-tempist's one bfdi & online 24/7](https://github.com/THE-TEMPIST)ㅤ[pt-everypony's one bfdi](https://github.com/pt-everypony)
+🏆 :ㅤ[ship-town](https://github.com/ship-town)ㅤ[music-town](https://github.com/music-town)ㅤ[the-tempist](https://github.com/THE-TEMPIST)ㅤ[pt-everypony](https://github.com/pt-everypony)
 
 ㅤ
 
